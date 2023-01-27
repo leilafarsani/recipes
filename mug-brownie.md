@@ -10,7 +10,7 @@ Often times, I will skip the microwave stage, and just eat the brownie mix. Ther
 - A pinch of salt
 - 2 tbsp olive oil
 - 3 tbsp water
-- 1/2 cup strawberries
+- 1/2 cup strawberries jam.
 
 # Steps
 
