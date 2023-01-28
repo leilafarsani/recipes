@@ -2,7 +2,8 @@ I love this recipe, because it's so simple to make.
 
 Often times, I will skip the microwave stage, and just eat the brownie mix. There no egg in it, so it's not even a salmonella risk!
 
-# What you need
+Would you like to know how this recipe is discovered ? The answer is the experiment!
+What you need
 
 - 1/4 cup sugar
 - 1/4 cup flour
