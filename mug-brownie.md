@@ -4,7 +4,6 @@ Often times, I will skip the microwave stage, and just eat the brownie mix. Ther
 
 Would you like to know how this recipe is discovered ? The answer is the experiment!
 What you need
-=============
 
 - 1/4 cup sugar
 - 1/4 cup flour
@@ -12,6 +11,7 @@ What you need
 - A pinch of salt
 - 2 tbsp olive oil
 - 3 tbsp water
+- 1/2 cup strawberries jam.
 
 # Steps
 
@@ -19,3 +19,4 @@ What you need
 2. Add the oil and water.
 3. Mix until everything is mixed together well.
 4. Microwave for 1 minute 40 seconds.
+5. Add the strawberries jam.
